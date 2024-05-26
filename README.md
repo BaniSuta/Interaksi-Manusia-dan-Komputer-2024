@@ -1,1 +1,3 @@
-# Interaksi-Manusia-dan-Komputer-2024
+# ACHMAD NUR BANI SUTA
+## 2209106016
+## Informatika A 2022
